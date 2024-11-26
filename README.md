@@ -1,1 +1,1 @@
-# arthur-2E
+# arthur-luna-2E
